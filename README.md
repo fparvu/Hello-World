@@ -1,2 +1,2 @@
 # Hello-World
-Becoming a better me 
+Becoming better 
